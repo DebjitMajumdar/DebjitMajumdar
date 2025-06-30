@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Debji tMajumdar
+- 👋 Hi, I’m @DebjitMajumdar
 - 👀 I’m interested in New tech
 - 🌱 I’m currently learning Coding and school things
 - 💞️ I’m looking to collaborate on nothing
